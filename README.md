@@ -1,1 +1,1 @@
-# Funproject.github.io
+# diploma-percentage.github.io
